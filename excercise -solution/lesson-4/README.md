@@ -1,4 +1,4 @@
-# Exercises
+#Exercises
 
 https://github.com/user-attachments/assets/fa2220de-b074-4b99-96fa-646442d4d048
 
